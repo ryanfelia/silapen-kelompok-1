@@ -1,1 +1,0 @@
-# silapen-kelompok-1
